@@ -1,6 +1,7 @@
 # Nitric Boost Ultra Review: Proven Benefits or Hidden Risks You Need to Know?
 ![Nitric Boost Ultra Review](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRgEr4RpKDNiP9oQOlgxm9QHr5ugTSuA4So6E_MUSQUUdW9ht5g-SyXfOv2&s=10)
-*Table of Contents*  
+
+<br>*Table of Contents*  
 - [What Is Nitric Boost Ultra?](#what-is-nitric-boost-ultra)  
 - [How Does Nitric Boost Ultra Work?](#how-does-nitric-boost-ultra-work)  
 - [Key Ingredients Breakdown](#key-ingredients-breakdown)  
